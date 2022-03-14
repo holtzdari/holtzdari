@@ -1,16 +1,13 @@
-### Hi there 👋
+### Hi everyone!
+I'm Daria and I'm learning to code.
+I am also interested in natural sciences 🧪, 3D modeling ⛏️, drawing 🐷 and music 🎧.
+One day I'll be cool :)
 
-<!--
-**holtzdari/holtzdari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+     
+     
+                                                                           ＜￣｀ヽ、　　　　　　　／ ￣ ＞
+                                                                       ゝ、　　＼　／⌒ヽ,ノ 　 /´
+                                                                         ゝ、 （ ( ͡◉ ͜> ͡◉) ／
+                                                                           >　 　 　,ノ
+                                                                           ∠_,,,/´
